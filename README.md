@@ -1,0 +1,2 @@
+# social
+sosyal medya yapmak
